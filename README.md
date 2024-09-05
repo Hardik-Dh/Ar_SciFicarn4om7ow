@@ -1,1 +1,0 @@
-# Ar_SciFicarn4om7ow
